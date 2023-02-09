@@ -1,1 +1,0 @@
-# ethanaanaya.github.io
